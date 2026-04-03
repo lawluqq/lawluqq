@@ -1,6 +1,6 @@
 <div align="center">
 
-  ![view](https://komarev.com/ghpvc/?username=dictenclown-dev&color=83688C&label=Profile%20views&style=flat-square)
+  ![view](https://komarev.com/ghpvc/?username=lawluqq&color=83688C&label=Profile%20views&style=flat-square)
 
 <div align="center">
 <a href="https://ibb.co/Vc69k08v"><img src="https://i.ibb.co/HfZ49LQr/70-20260403031841.png" alt="70-20260403031841" border="0"></a>
