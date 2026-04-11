@@ -8,7 +8,7 @@
 ㅤㅤ 𖣻 ㅤ   ۪  ㅤ  ☁️ ㅤㅤㅤꖡㅤㅤ ۫ㅤㅤაㅤㅤㅤ ‌
 ㅤ   
        
-◟[inf](https://t.me/oqeoqev)otg◞
+◟[inf](https://t.me/lawluqq)otg◞
 [mus](https://t.me/MusikMainer)tg 
 ◟[ata](https://atabook.org/features)◞
 
