@@ -1,9 +1,9 @@
 <div align="center">
 
-  ![view](https://komarev.com/ghpvc/?username=lawluqq&color=83688C&label=Profile%20views&style=flat-square)
+  ![view](https://komarev.com/ghpvc/?username=lawluqq&color=8F8D9A&label=Profile%20views&style=flat-square)
 
 <div align="center">
-<a href="https://ibb.co/Vc69k08v"><img src="https://i.ibb.co/HfZ49LQr/70-20260403031841.png" alt="70-20260403031841" border="0"></a>
+<a href="https://ibb.co/352DXJnT"><img src="https://i.ibb.co/4wz6yQHF/88-20260412141311.png" alt="88-20260412141311" border="0"></a>
    <div align="center">
 ㅤㅤ 𖣻 ㅤ   ۪  ㅤ  ☁️ ㅤㅤㅤꖡㅤㅤ ۫ㅤㅤაㅤㅤㅤ ‌
 ㅤ   
@@ -16,9 +16,8 @@
           
        Intp  .  4w6   ,  26.11 .   2oo7  
 
-<a href="https://ibb.co/GvS173ZB"><img src="https://i.ibb.co/PZHbxz23/IMG-20260402-122756.png" alt="IMG-20260402-122756" border="0"></a>
+<a href="https://ibb.co/Mx7FThCS"><img src="https://i.ibb.co/ycqHTRQP/91-20260412142833.png" alt="91-20260412142833" border="0"></a>
          <div align="center">
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/5h416cg5/67d5986632e8a7826b1748ad6aeddad7.gif" alt="67d5986632e8a7826b1748ad6aeddad7" border="0"></a>
 
 ℎ𝑜𝑏𝑏𝑖𝑒𝑠: 𝑠𝑖𝑛𝑔𝑖𝑛𝑔, 𝑛𝑒𝑒𝑑𝑙𝑒𝑤𝑜𝑟𝑘, 𝑠𝑝𝑜𝑟𝑡𝑠. 
 
