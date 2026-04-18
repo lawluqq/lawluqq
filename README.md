@@ -5,12 +5,16 @@
 <div align="center">
 <a href="https://ibb.co/352DXJnT"><img src="https://i.ibb.co/4wz6yQHF/88-20260412141311.png" alt="88-20260412141311" border="0"></a>
    <div align="center">
- ───※ ·❆· ※─── † ───※ ·❆· ※───ㅤ ‌
+  ‌
 ㅤ   
-       
-◟[inf](https://t.me/lawluqq)otg◞
+   ┌─────────────────┐   .
+
+-ˋˏ[inf](https://t.me/lawluqq)otg◞
 [mus](https://t.me/MusikMainer)tg 
-◟[ata](https://atabook.org/features)◞
+◟[ata](https://atabook.org/features)◞ ˎˊ
+
+└─────────────────┘    
+
 
 <div align="center">
           
