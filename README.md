@@ -18,7 +18,7 @@
 
 <div align="center">
           
-       Intp  .  4w6   ,  26.11 .   2oo7  
+       Intp  .  4w6  
 
 <a href="https://ibb.co/Mx7FThCS"><img src="https://i.ibb.co/ycqHTRQP/91-20260412142833.png" alt="91-20260412142833" border="0"></a>
          <div align="center">
