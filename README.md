@@ -19,7 +19,7 @@
 <a href="https://ibb.co/YTbdZpMh"><img src="https://i.ibb.co/x83gHJ06/113-20260419225132.png" alt="113-20260419225132" border="0"></a>
 
 
-  <div align="center" 
+  
 
   
 ║  ◌. Lesya.
@@ -45,6 +45,7 @@
 
  sleeping : : у меня большие проблемы
  со сном
+
 offline : : по настроению
 
 online : : по настроению
