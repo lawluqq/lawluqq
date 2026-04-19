@@ -16,7 +16,7 @@
 
  
 <div align="center" 
-  <ul>
+  
 ║  ◌. Lesya.
 ║  ◌. girl. 
 ║  ◌. 18. 
@@ -26,6 +26,7 @@
 ║  ◌. sagittarius ♐
 ║  ◌. blue, purple.
 ║  ◌. music, freedom. 
+
 
 
  sleeping : : у меня большие проблемы со сном
