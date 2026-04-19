@@ -20,11 +20,9 @@
 
 
   
-
-  
 ║  ◌. Lesya.
 
-║  ◌. girl. 
+║  ◌. girl.
 
 ║  ◌. 18. 
 
@@ -43,7 +41,7 @@
 
 
 
- sleeping : : у меня большие проблемы
+sleeping : : у меня большие проблемы
  со сном
 
 offline : : по настроению
@@ -56,18 +54,19 @@ eating : : солёное, острое
 
 busy : : редко занят
 
-on/off : : открыт
+on/off: : on
 
 constantly on the move : : да
 
-Friends : : только хорошие знакомые, я им не настолько доверяю чтобы назвать их друзьями как бы обидно это не звучало для них. 
+Friends : : only good friends, I don't trust them enough to call them friends, no matter how insulting it may sound to them. 
 
 
 
-создано в основном для красоты, а не для знакомств и большее. поэтому можете просто слушать музыку и смотреть редкие посты по типу моих фото с игрушками любимых фд?
+created mainly for beauty, not for dating and more. so can you just listen to music and watch rare posts like my photos with toys of your favorite fds?
 
-Кто мне нравится из персонажей в фандоме бродячих псов:
-Николай Гоголь, Осаму Дазай, Сакуноске Ода, Куникида Доппо, Фёдор Достоевский возможно, потому что он всем нравится. Тацухико Шибусава, Ацуши Накаджима.
- 
+Who do I like from the characters in the stray Dogs fandom?:
+Nikolai Gogol, Osamu Dazai, Sakunosuke Oda, Kunikida Doppo, Fyodor Dostoevsky, perhaps because everyone likes him. Tatsuhiko Shibusawa, Atsushi Nakajima.
 
-О здоровье: я не курю, не пью энергетики, другие напитки кроме воды и иногда газированных. 
+ 
+
+About health: I do not smoke, do not drink energy drinks, other drinks except water and sometimes carbonated. 
