@@ -19,44 +19,35 @@
 <a href="https://ibb.co/YTbdZpMh"><img src="https://i.ibb.co/x83gHJ06/113-20260419225132.png" alt="113-20260419225132" border="0"></a>
 
 
-  
-║  ◌. Lesya.
+  ◌. Lesya.
+ ◌. girl.
+◌. 18. 
 
-║  ◌. girl.
+ ◌. straight. 
+ ◌. active, and lazy.
 
-║  ◌. 18. 
+ ◌. arkan(idk): 11
+  ◌. sagittarius ♐
 
-║  ◌. straight. 
-
-║  ◌. active, and lazy.
-
-║  ◌. arkan(idk): 11
-
-║  ◌. sagittarius ♐
-
-║  ◌. blue, purple.
-
-║  ◌. music, freedom. 
-
+ ◌. blue, purple.
+  ◌. music, freedom.
 
 
 
 sleeping : : у меня большие проблемы
- со сном
+со сном
 
 offline : : по настроению
-
-online : : по настроению
+ 
+  online : : по настроению
 
 at school : : учусь на первом курсе.
 
-eating : : солёное, острое
+  eating : : солёное, острое
 
 busy : : редко занят
 
-on/off: : on
-
-constantly on the move : : да
+restlessness : : да
 
 Friends : : only good friends, I don't trust them enough to call them friends, no matter how insulting it may sound to them. 
 
