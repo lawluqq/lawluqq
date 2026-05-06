@@ -1,7 +1,8 @@
 <div align="center">
 
   ![view](https://komarev.com/ghpvc/?username=lawluqq&color=EFCBDC&label=Profile%20views&style=flat-square)
-
+  
+ ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦ ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· 
 <div align="center" 
 <a href="https://ibb.co/279N9qSm"><img src="https://i.ibb.co/QFgdg9kz/143-20260506182509.png" alt="143-20260506182509" border="0"></a>
 
