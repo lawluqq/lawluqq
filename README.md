@@ -11,6 +11,7 @@
 ꒰[ music ](https://t.me/MusikMainer)꒱
 ꒰[ ata ](https://atabook.org/featfeatu)꒱
 ꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱
- ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
+  
+   ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
 
  <a href="https://ibb.co/KjJ4h2nF"><img src="https://i.ibb.co/rGV80x94/143-20260506182530.png" alt="143-20260506182530" border="0"></a>
