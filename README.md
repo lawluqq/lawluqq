@@ -10,7 +10,7 @@
 ꒰[ info ](https://t.me/lawluqq)꒱
 ꒰[ music ](https://t.me/MusikMainer)꒱
 ꒰[ ata ](https://atabook.org/featfeatu)꒱
-
+꒰[ tiktok](tiktok.com/@qwizqx)꒱
  ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
 
  <a href="https://ibb.co/KjJ4h2nF"><img src="https://i.ibb.co/rGV80x94/143-20260506182530.png" alt="143-20260506182530" border="0"></a>
