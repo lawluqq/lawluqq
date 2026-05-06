@@ -9,7 +9,6 @@
     
 ꒰[ info ](https://t.me/lawluqq)꒱
 ꒰[ music ](https://t.me/MusikMainer)꒱
-꒰[ ata ](https://atabook.org/featfeatu)꒱
 ꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱
   
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
