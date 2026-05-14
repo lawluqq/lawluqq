@@ -3,7 +3,7 @@
   
 <div align="center">
 
-  ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=D3BBBB&label=Profile%20views&style=flat-square)
+  ![Profile Views](https://komarev.com/ghpvc/?username=lawluqq&color=D3BBBB&label=Profile%20views&style=flat-square)
   
 <div align="center" 
  <a href="https://ibb.co/SX4DRyPR"><img src="https://i.ibb.co/jvP9gfTg/143-20260507234812.png" alt="143-20260507234812" border="0"></a>
