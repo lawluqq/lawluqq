@@ -11,7 +11,8 @@
     
 ꒰[ info ](https://t.me/lawluqq)꒱
 ꒰[ music ](https://t.me/MusikMainer)꒱
-꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱ ꒰[my sis] (https://github.com/sayonearaIofp)꒱
+꒰[ tiktok](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)꒱ 
+꒰[my sis](https://github.com/sayonearaIofp)꒱
   
    ────────── ·﻿ ﻿ ﻿· ﻿ ·﻿ ﻿ ﻿· ﻿✦
 
