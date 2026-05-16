@@ -10,7 +10,7 @@
   
   ꒰[ inf](https://t.me/lawluqq)o꒱
   ꒰[ mus](https://t.me/MusikMainer)ik꒱
-  ꒰[ tik](https://www.tiktok.com/@qwizqx?_r=1&_t=ZS-96944Baq96w)tok꒱
+  ꒰[ ata](https://lawq.atabook.org/)book꒱
 
 <div align="center">
   <a href="https://ibb.co/qYXgjKwr"><img src="https://i.ibb.co/9Hz4g6jr/IMG-20260516-180257.png" alt="IMG-20260516-180257" border="0"></a>
