@@ -6,7 +6,7 @@
 <a href="https://ibb.co/G43F3XLJ"><img src="https://i.ibb.co/9k3G3JLv/IMG-20260516-180244.png" alt="IMG-20260516-180244" border="0"></a>
 
 <div align="center">
-<a href="https://ibb.co/LhtKmbT2"><img src="https://i.ibb.co/x8jZWPnR/155-20260516180752.png" alt="155-20260516180752" border="0"></a>
+<a href="https://ibb.co/RkQ7fXcx"><img src="https://i.ibb.co/jP3HmCDc/153-20260522212144.png" alt="153-20260522212144" border="0"></a><br /><a target='_blank' href='https://ru.imgbb.com/'
   
   ꒰[ inf](https://t.me/lawluqq)o꒱
   ꒰[ mus](https://t.me/MusikMainer)ik꒱
