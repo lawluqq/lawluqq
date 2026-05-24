@@ -1,5 +1,5 @@
 <div align="center">
-<a href="https://ibb.co/B5JJyvjK"><img src="https://i.ibb.co/cS996RtX/IMG-20260524-201257.png" alt="IMG-20260524-201257" border="0"></a>
+<a href="https://ibb.co/QvSfdsgw"><img src="https://i.ibb.co/jk0TR7NX/IMG-20260524-201831.png" alt="IMG-20260524-201831" border="0"></a>
 
   ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=F8DBEA&label=Profile%20views&style=flat-square)
 
@@ -10,5 +10,7 @@
   ꒰[ mus](https://t.me/MusikMainer)ik꒱
   ꒰[ ata](https://lawq.atabook.org/)book꒱
 
+<a href="https://ibb.co/pvrLbmP3"><img src="https://i.ibb.co/7JN1j9zG/IMG-20260524-202029.png" alt="IMG-20260524-202029" border="0"></a>
+
 <div align="center">
-  <a href="https://ibb.co/xKn20Wr0"><img src="https://i.ibb.co/8nympqQp/IMG-20260524-201305.png" alt="IMG-20260524-201305" border="0"></a>
+<a href="https://ibb.co/KcpjYn6L"><img src="https://i.ibb.co/RGkp182B/IMG-20260524-201818.png" alt="IMG-20260524-201818" border="0"></a>
