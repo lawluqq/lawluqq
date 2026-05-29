@@ -4,13 +4,12 @@
   ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=F8DBEA&label=Profile%20views&style=flat-square)
 
 <div align="center">
-<a href="https://ibb.co/TqYfBgbw"><img src="https://i.ibb.co/HpBSDHxK/153-20260524200945.png" alt="153-20260524200945" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/ZQKTz0c/1780044349351.gif" alt="1780044349351" border="0"></a>
   
   ꒰[ inf](https://t.me/lawluqq)o꒱
   ꒰[ mus](https://t.me/MusikMainer)ik꒱
   ꒰[ ata](https://lawq.atabook.org/)book꒱
 
-<a href="https://ibb.co/pvrLbmP3"><img src="https://i.ibb.co/7JN1j9zG/IMG-20260524-202029.png" alt="IMG-20260524-202029" border="0"></a>
 
 <div align="center">
 <a href="https://ibb.co/KcpjYn6L"><img src="https://i.ibb.co/RGkp182B/IMG-20260524-201818.png" alt="IMG-20260524-201818" border="0"></a>
