@@ -9,7 +9,7 @@
 · · ─────── ·𖥸· ─────── · ·
   
   ꒰[ inf](https://t.me/lawluqq)o꒱
-  ꒰[ mus](https://t.me/MusikMainer)ik꒱
+  ꒰[ mus](https://t.me/lawlmus)ik꒱
   ꒰[ ata](https://lawq.atabook.org/)book꒱
 
    ▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
