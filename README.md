@@ -1,10 +1,10 @@
 <div align="center">
   ▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞▞
   
- ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=664576&label=Profile%20views&style=flat-square)
+ ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=000000&label=Profile%20views&style=flat-square)
 
 <div align="center">
-<a href="https://ibb.co/zT1C1Cbg"><img src="https://i.ibb.co/tTSnSnc6/165-20260601000100.png" alt="165-20260601000100" border="0"></a>
+<a href="https://ibb.co/8gVmF5ct"><img src="https://i.ibb.co/b5n6pBJD/189-20260703064331.png" alt="189-20260703064331" border="0"></a>
   <div align="center">
 · · ─────── ·𖥸· ─────── · ·
   
