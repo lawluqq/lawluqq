@@ -1,7 +1,5 @@
 <div align="center">
-  
- ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=000000&label=Profile%20views&style=flat-square)
- 
+
 <div align="center">
 <a href="https://ibb.co/BKHLFNMN"><img src="https://i.ibb.co/HpL73d8d/198-20260729172559.png" alt="198-20260729172559" border="0"></a>
   <div align="center">
@@ -11,4 +9,6 @@
   ꒰[ mus](https://t.me/lawlmus)ik꒱
   ꒰[ ata](https://lawq.atabook.org/)book꒱
 
-   
+     
+ ![Profile Views](https://komarev.com/ghpvc/?username=dictenclown-dev&color=000000&label=Profile%20views&style=flat-square)
+ 
