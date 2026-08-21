@@ -5,7 +5,7 @@
 <a href="https://ibb.co/HpMyPsJy"><img src="https://i.ibb.co/QjqVHR5V/205-20260820185521.png" alt="205-20260820185521" border="0"></a>
   <div align="center">
   
-  ꒰[ inf](https://t.me/acannib0l)o꒱
+  
   ꒰[ mus](https://t.me/acanibal0)ik꒱
   ꒰[ ata](https://lawq.atabook.org/)book꒱ 
      ▬▭▬▭▬▭▬▭▬▭▬▭▬▭▬▭▬▭
